@@ -1,4 +1,4 @@
 - 👋 Hi, I’m jeeva
-- 👀 I’m interested in product design and product developer
+- 👀 I’m interested in Web Design and Development
 - 📫 How to reach me jeevaranjith101124@gmail.com(personal id)
 
